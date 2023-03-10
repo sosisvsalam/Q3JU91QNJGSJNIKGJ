@@ -1,2 +1,3 @@
-# Q3JU91QNJGSJNIKGJ
-123132123
+Developed By Maskot
+
+Discord Sunucumuz : https://discord.gg/kMVVPN3EmZ
